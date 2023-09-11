@@ -1,1 +1,1 @@
-Some notes written in NJU and DIU!
+Some notes written in NJUCM and DIU!
